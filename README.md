@@ -8,5 +8,5 @@ My Name is anddriex
 - functional programming
 
 
-![dr-mundo](https://i.pinimg.com/originals/aa/17/5a/aa175a9b38da38c2e5097643bd14bb4e.png)
-[link to youtube!](https://www.youtube.com/watch?v=qPL3NLsP__k&index=3&list=RDo6b9JpBFjd4)
+![dr-mundo](https://orig00.deviantart.net/8e2f/f/2015/239/9/2/olaf__lol__by_sirjochen-d97cxpo.png)
+[link to youtube!](https://www.youtube.com/watch?v=qJ_PMvjmC6M)
